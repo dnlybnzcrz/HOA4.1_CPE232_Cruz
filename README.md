@@ -1,3 +1,3 @@
 # SysAd2
-
-#Example lang po ito 
+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
+#
